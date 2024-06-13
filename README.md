@@ -1,4 +1,4 @@
-# Progress Log
+# Alex's Progress Log
 
 ## The purpose of the Progress Log
 Throughout your time on the 12 week training block, all apprentices are required to keep a Progress Log as part of the programme. 
